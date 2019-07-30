@@ -5,7 +5,7 @@
 本网页网址https://github.com/laolingdao/xiaojiejie<br>
 最下面有教程怎么样用简化版本的TG就是biyong 用于联系
 
-# 最新苹果安卓下载地址2019年6月23日更新
+# 最新苹果安卓下载地址2019年7月30日更新
 ### [dmjs.xyz ](http://thvndl.cn )
 ### [7ngv.xyz ](http://maqkyo.cn )
 ### [koxn.xyz](http://memoqw.cn)<br>
