@@ -6,9 +6,9 @@
 最下面有教程怎么样用简化版本的TG就是biyong 用于联系
 
 # 最新苹果安卓下载地址2019年7月30日更新
-### [dmjs.xyz ](http://thvndl.cn )
-### [7ngv.xyz ](http://maqkyo.cn )
-### [koxn.xyz](http://memoqw.cn)<br>
+### [0flm.xyz ](http://thvndl.cn )
+### [heqo.xyz ](http://maqkyo.cn )
+### [e0e9.xyz](http://memoqw.cn)<br>
 备用下载地址如下<br>
 qv0b.xyz<br>
 hcq1.xyz<br>
@@ -24,10 +24,11 @@ a5of.xyz<br>
 apnx.xyz<br>
 pjgm.xyz<br>
 iy0o.xyz<br>
-0flm.xyz<br>
-heqo.xyz<br>
 e0e9.xyz<br>
-6wpq.xyz<br>
+koxn.xyz<br>
+7ngv.xyz<br> 
+dmjs.xyz<br> 
+
 
 # 游戏公测说明
 ### 1、必须开播设置游戏，才可以获得主播游戏分成。
