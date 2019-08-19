@@ -58,7 +58,7 @@
 如果上面的教程看完还是无法学习使用，推荐使用TG简化版，无需使用代理，直接下载使用！
 
 
-教程使用Biyong聊天工具（TG简版）
+### 教程使用Biyong聊天工具（TG简版）
 
 下载地址https://www.biyong.sg/index?from=message&isappinstalled=0 
 
