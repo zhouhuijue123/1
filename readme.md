@@ -10,7 +10,7 @@ telegram 聊天工具交流更安全，下载安装使用请看tg使用攻略：
 ### [heqo.xyz ](http://heqo.xyz )
 ### [e0e9.xyz](http://e0e9.xyz)<br>
 备用下载地址如下<br>
-0ns3.xyz<br>
+0ns3.qqqqqqqqqquuuuuuuuuuuuquququququuquququuqxyz<br>
 my53.xyz<br>
 ht73.xyz<br>
 270a.xyz<br>
