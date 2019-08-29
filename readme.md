@@ -14,16 +14,8 @@ telegram 聊天工具交流更安全，下载安装使用请看tg使用攻略：
 my53.xyz<br>
 ht73.xyz<br>
 270a.xyz<br>
-3sjw.xyz<br>
-5hzt.xyz<br>
-akef.xyz<br>
-7flj.xyz<br>
-a5of.xyz<br>
-apnx.xyz<br>
-pjgm.xyz<br>
-iy0o.xyz<br>
-e0e9.xyz<br>
-dmjs.xyz<br> 
+270a.xyz<br>
+
 
 
 # 游戏公测说明
